@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me -
 - 😄 Pronouns: -
-- ⚡ Fun fact: No fun fact here
+- ⚡ Fun fact: No fun fact here, ("goleki opo su") 
 
 <!---
 nzxt09/nzxt09 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
